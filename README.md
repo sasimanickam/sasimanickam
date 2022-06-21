@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sasimanickam
+- 👀 I’m interested in Data and Data Analytics..  Predictive, especially.. and some AI/ML. :)  
+- 📫 you can reach using slack, you guessed it.. @Sasi Manickam 
